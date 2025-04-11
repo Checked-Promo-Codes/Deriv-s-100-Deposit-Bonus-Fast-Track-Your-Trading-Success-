@@ -65,3 +65,9 @@ Deriv is a **trusted platform** that offers an exceptional trading experience fo
 With **Deriv’s 100% deposit bonus**, you can instantly boost your trading balance and dive into more opportunities in the market. **No promo code** is required—simply deposit, and your bonus will be applied right away!
 
 📢 **Don’t wait!** Register on **[Deriv](https://smartthriftfinder.com/deriv-kostya)** today and claim your **100% deposit bonus** to fast-track your trading success! 🚀
+<h3>Follow us in Social Media</h3>
+<ul>
+<li><a href="https://github.com/Checked-Promo-Codes">Github</a></li>
+<li><a href="https://mirror.xyz/0xaFcA0DCAfB999A248e24C9FFCA942c9fbC17B19C">Mirror.xyz</a></li>
+<li><a href="https://x.com/pocketoption100">Twitter</a></li>
+</ul>
