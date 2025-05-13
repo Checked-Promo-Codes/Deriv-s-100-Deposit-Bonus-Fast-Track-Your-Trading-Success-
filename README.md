@@ -71,3 +71,11 @@ With **Deriv’s 100% deposit bonus**, you can instantly boost your trading bala
 <li><a href="https://mirror.xyz/0xaFcA0DCAfB999A248e24C9FFCA942c9fbC17B19C">Mirror.xyz</a></li>
 <li><a href="https://x.com/pocketoption100">Twitter</a></li>
 </ul>
+
+## Find more information here
+
+- [Hashnode](https://best-quotex-trading-strategies.hashnode.dev/deriv-promo-code-use-and-get-advantages-in-binary-options-trading)
+- [HackMD](https://hackmd.io/@davidshelton/B1r3i-Lygx)
+- [Coda](http://coda.io/d/Deriv-Promo-Code-How-to-Activate-the-100-Deposit-Bonus-for-New-P_d1arkueSUZI)
+- [Wix](https://dshelton1993.wixsite.com/binaryoptions/post/deriv-promo-code-how-to-get-bonuses-and-increase-capital-when-trading-binary-options)
+- [Mirror](https://mirror.xyz/0xaFcA0DCAfB999A248e24C9FFCA942c9fbC17B19C/CKZl5YTKlrI5KRqlDDoac1k6LH1ZBCoeYCN-BKhbXTw)
